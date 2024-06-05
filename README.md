@@ -1,6 +1,6 @@
 
 
-![[Header](https://github.com/HasanHasik/HasanHasik/blob/master/assets/XASAN%20ZIKIRYOYEV.png)]()
+![[Header](https://github.com/HasanHasik/HasanHasik/blob/master/assets/XASAN%20ZIKIRYOYEV.png)](https://github.com/HasanHasik/HasanHasik/blob/master/assets/XASAN%20ZIKIRYOYEV.png)
 
 About me
 
